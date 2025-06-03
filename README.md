@@ -10,6 +10,8 @@ YUNNIE/RICE>.< hi ricecooker pls get online now i miss u mother, ok
   and sometimes know what they're saying. And im
   learning some other English words too, because it's
   really hard to understand deep english words for me 😅
+im always okay for cuds and hides!!>< in some cases i might have 'dni' on my name and not on a goodmood !
+(please cuddle w me when u have c+h on my name since when i put that im desperate for cuddles LIKE COME ON AND LITERALLY CUDDLE ME IM ALONE)
 
        ` ~ \\ 🍃   favorite artist and musics! // ლ
 <!---            (⁠つ⁠≧⁠▽⁠≦⁠)⁠つLAUFEY- my top one fav artist omg 
