@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @roseDovex
+- 👋 Hi, I’m rose::33
 - 🍃 I’m interested in ... playing, musics, styles/fashions and so much more!
 - 🌱 I’m currently learning ... some other languages
   so i can communicate with others
@@ -7,7 +7,7 @@
   really hard to understand deep english words for me 😅
 
        ` ~ \\ 🍃   favorite artist and musics! // ლ
-<!---            (⁠つ⁠≧⁠▽⁠≦⁠)⁠つLAFUEY - my top one fav artist omg 
+<!---            (⁠つ⁠≧⁠▽⁠≦⁠)⁠つLAUFEY- my top one fav artist omg 
                                     her voice and musics are just so calm
                             Odetari - you're gonna get blown when you
                                       hear they're musics, its like punk and
@@ -16,7 +16,7 @@
                             ʕ⁠っ⁠•⁠ᴥ⁠•⁠ʔ⁠っ ~ `` and many more 🍃 // `` 
                                       FAV MUSICS!!!♡⁠(⁠˃͈⁠ ⁠દ⁠ ⁠˂͈⁠ ⁠༶⁠ ⁠)
                             LAFUEY - From The Start
-                                     Falling behind
+                                     Let You Break My Heart Again
                                      Valentine
                                      Promise
                              ODETARI-YOU'RE TOO SLOW
