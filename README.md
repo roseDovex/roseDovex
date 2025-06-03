@@ -1,4 +1,9 @@
-- 👋 Hi, I’m rose::33
+i have a beautiful wife named kafu^_^ Idfk how to add pictures of us cuddling sibsmsowy i love her, good night and goodmorning to her the rest of u dont get one ❤️/j
+
+MY FATHER(^^) KUNI, love u my dada thanks for kidnapping me as your child >< Meow 
+
+YUNNIE/RICE>.< hi ricecooker pls get online now i miss u mother, ok 
+- 👋 Now HELLO! Hi!, I’m rose::33
 - 🍃 I’m interested in ... playing, musics, styles/fashions and so much more!
 - 🌱 I’m currently learning ... some other languages
   so i can communicate with others
