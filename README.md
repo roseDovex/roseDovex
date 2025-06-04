@@ -1,4 +1,3 @@
-https://rentry.co/midnightrosaria
 <div align="center">
   
   
