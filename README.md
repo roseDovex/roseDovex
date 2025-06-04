@@ -5,7 +5,7 @@
 
  
   
-</div> i have a beautiful wife named kafu^_^ love her, good night and goodmorning to her the rest of u dont get one ❤️/j
+</div> i have a beautiful wife named kafu^_^ i love u kafu>< good night and goodmorning to her the rest of u dont get one ❤️/j
 
 MY FATHER(^^) KUNI, love u my dada thanks for kidnapping me as your child >< Meow 
 
